@@ -1,2 +1,0 @@
-# elironclark.github.io
-CAPOEIRA
